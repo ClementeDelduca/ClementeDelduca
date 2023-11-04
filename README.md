@@ -7,5 +7,8 @@ Desarrollador Web Full Stack con enfoque en la mejora continua de mis habilidade
 
 🖥️ Lenguages and tools
 
-![Sin título](https://github.com/ClementeDelduca/ClementeDelduca/assets/121412249/d835478b-dead-4e9f-a4aa-ce939b3d6e17)
+![logos](https://github.com/ClementeDelduca/ClementeDelduca/assets/121412249/5955a08c-e95b-4ec4-95c1-b83fe6664269)
 
+Conectate conmigo:
+
+![Sin título](https://github.com/ClementeDelduca/ClementeDelduca/assets/121412249/55c8ec33-c5b4-4bc0-8b01-57723994643a)
