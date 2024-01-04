@@ -12,3 +12,4 @@ Desarrollador Web Full Stack con enfoque en la mejora continua de mis habilidade
 Conectate conmigo:
 
 ![Sin título](https://github.com/ClementeDelduca/ClementeDelduca/assets/121412249/55c8ec33-c5b4-4bc0-8b01-57723994643a)
+https://www.linkedin.com/in/clemente-delduca-6691181a7/
